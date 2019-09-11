@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+* Naruto Shippuden
+* Fairy Tail
+* Bleach
+* Dragon Ball Super
+* One Puch Man
